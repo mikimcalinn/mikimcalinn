@@ -8,7 +8,7 @@ NOW
 - 🐚 Interested in coral reef conservation, degradation
 - 💞 I ’m looking to collaborate on issues related to outbreaks of Crown-of-thorns starfish
 
-- 📫 Email: mikimcalinn@gmail.com
+
 
 ACTIVITIES
 - Competitive cheerleader
