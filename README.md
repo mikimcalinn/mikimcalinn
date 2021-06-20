@@ -5,12 +5,14 @@ I'm currently a Master student majoring in Environmental Scince in Japan🌿
 
 NOW
 - 🌱 Studing at the Graduate School of Hokkaido Universuty
-- 🐚 I ’m looking to collaborate on coral reef conservation, degradation and issues related to outbreaks of Crown-of-thorns starfish
+- 🐚 Interested in coral reef conservation, degradation
+- 💞 I ’m looking to collaborate on issues related to outbreaks of Crown-of-thorns starfish
 
 - 📫 Email: mikimcalinn@gmail.com
 
 ACTIVITIES
-- 🎀 Competitive cheerleader
+- Competitive cheerleader
+- Squash
 
 
 
