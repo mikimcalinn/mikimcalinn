@@ -12,7 +12,7 @@ NOW
 
 ACTIVITIES
 - Competitive cheerleader
-- Squash
+- Squash player
 
 
 
